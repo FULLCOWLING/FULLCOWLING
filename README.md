@@ -9,7 +9,7 @@
 
 art : beybuniki
   
-[🥦 straw](https://nighthiide.straw.page)‎ ‎ ‎ ‎
+[🥦 straw](https://fullcowling.straw.page)‎ ‎ ‎ ‎
 [🪲 ata](https://lawzos.atabook.org/)‎ ‎ ‎ ‎ ‎[🍀 guns](https://guns.lol/sunsspace)
 ‎ ‎ ‎ 
 
