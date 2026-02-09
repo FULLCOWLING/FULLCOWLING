@@ -1,8 +1,7 @@
-![](https://file.garden/aIrFR9W4twp1wUOQ/67415f83798ded862a4990b9b042b0b8.jpg)
+![](https://file.garden/aIrFR9W4twp1wUOQ/Untitled253_20260208223050.png)
 
 
 <div id="ata" align="center">
 
-art cred : apricity1876 on pin
+art : beybuniki
   
-[straw 🪽](https://odysseyduoos.straw.page)
