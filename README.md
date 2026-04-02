@@ -7,7 +7,7 @@
 <div id="ata" align="center">
 
  ‎ ‎ ‎
-[🧀 ata](https://lawzos.atabook.org/)‎ ‎ ‎ ‎ ‎[🍊 guns](https://guns.lol/sunsspace)
+[🧀 ata](https://lawzos.atabook.org/)‎ ‎ ‎ ‎ ‎
 ‎ ‎ ‎ 
 
 ‎![](https://komarev.com/ghpvc/?username=your-github-username&label=ლ&color=yellow)
